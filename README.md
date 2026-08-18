@@ -1,2 +1,6 @@
-# sooooon2_Zip
-sooooon2를 사랑하는 모임
+이 암호를 해석하시오.
+dkssudgktpdy. dl rmfdmf gotjrgkfurh tlehfmf gkeksl sjan eoeksgkqslekd!
+ckdtnsdlrk qhrh tlvdjtj dhtuTsmswldy?
+ckdtnsdlfmf qhtlfuaus wp toddlfdmf akwcntudigkrjffkdyd.
+rlghlsms anfu ektjtqjs
+zbzbzbzb 
